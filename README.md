@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @silentaloud
+- 👀 I’m interested in photography
